@@ -1,0 +1,2 @@
+# Infinite-Wallpaper
+privacy policy
